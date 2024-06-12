@@ -1,8 +1,6 @@
 ## Hi there!
 
-- 📖 Studying
-- 💼 Exploring the world
-- 🌿 Chilling 
+- 🌿 Im Chilling 
 
 ---
 
